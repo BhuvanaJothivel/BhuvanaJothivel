@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 🌱 I’m currently learning everything 🤣
 
-💬 Ask me about Anything, I am happy to help
+💬 Ask me about Anything, I am happy to help 🤗
 
 📫 How to reach me: [@bhuvana_jothivel](bhuvanamjothivel@gmail.com)
 
