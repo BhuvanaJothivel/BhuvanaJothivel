@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 
 💬 Ask me about Anything, I am happy to help
 
-📫 How to reach me: bhuvanamjothivel@gmail.com
+📫 How to reach me: [@bhuvana_jothivel](bhuvanamjothivel@gmail.com)
 
 ⚡ Fun fact: I'm a kinda Trypanophobia 🤣🤪
 
