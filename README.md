@@ -1,5 +1,5 @@
 Hi there I'm Bhuvana 👋
-A Budding Full Stack Developer 🚀 from India, currently, I'm a working as a Technology Mentor in Focus Academy for Career Enchancement. Beside's programming, I love to cook food and spent a time to draw pencil sketches.
+A Full Stack Developer with 3+ years of experience 🚀 from India, currently, I'm a working as a Software Engineer in Quinbay Technologies. Beside's programming, I love to cook and spent a time to draw pencil sketches.
 
 Here are some ideas to get you started:
 
